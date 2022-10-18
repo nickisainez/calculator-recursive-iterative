@@ -1,0 +1,11 @@
+# Integrantes del grupo:
+
+01) Jelsin PALOMINO HUAYTAPUMA
+
+02) Maria GONZALES BALDERA
+
+03) Natalia PAIRA PEREZ
+
+04) Nicki SAINEZ PEZANTES
+
+05) Rodmel CALDERON CORONADO
